@@ -3,4 +3,4 @@ NSE Index Trading Tool for Smoother and Faster Trading in FNO segment. Good for 
 
 The Executable File Link : https://algohat.com/resources/itl_GUI.zip
 
-Free Activation Key for All : "stw-itw-1q2a-w3zs-e4xd"
+Free Activation Key for All : stw-itw-1q2a-w3zs-e4xd
